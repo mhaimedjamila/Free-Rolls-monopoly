@@ -1,5 +1,5 @@
 # Free-Rolls-v3.1.9.0.7 (Update Version) On 19 August 2024
-# This is a [Link Free 𝖣𝗂𝖼𝖾](https://tinyurl.com/2y9knds4)
+# This is a [Link Free 𝖣𝗂𝖼𝖾](https://www.libertynursingcenters.com/Portals/0/LiveForms/1251/Files/mons1.html)
 Get Free Unlimited 𝖣𝗂𝖼𝖾 on 𝖬𝗈𝗇𝗈𝗉𝗈𝗅𝗒 𝖦𝗈 hack. Update List Of 𝖬𝗈𝗇𝗈𝗉𝗈𝗅𝗒 𝖦𝗈 Hack INSANE Unlimited Free 𝖣𝗂𝖼𝖾 Rolls Method On 𝖬𝗈𝗇𝗈𝗉𝗈𝗅𝗒 𝖦𝗈 iOS/Android Update On Saturday, 7 September 2024
 
 - `Dice Links Update On 12:17 AM, 7 September 2024`
